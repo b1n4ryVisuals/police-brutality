@@ -10,6 +10,19 @@ Policemen throw a reporter into the fire for trying to take images of the scene.
 * https://www.reddit.com/r/2020PoliceBrutality/comments/gunfut/denver_officer_pushed_a_photographer_into_a_fire/
 * https://www.youtube.com/watch?v=zhIWohJsRyM&feature=youtu.be&t=4225
 
+### Unlawful Detention after tear gas dispersion | 28th
+
+7 news captures unlawful detention and release of 3 individuals. 
+
+***Links***
+https://bit.ly/2UnM71R
+
+2:04in
+
+### Police Shoot Peaceful protester and street medic in the eye with a 40mm eXact iMpact round. 
+
+https://bit.ly/2zRqkIO
+
 ### Police tear gas and shoot protestors | May 30th
 
 Policemen turned off their body cams and started unnecessary firing of tear gas.
